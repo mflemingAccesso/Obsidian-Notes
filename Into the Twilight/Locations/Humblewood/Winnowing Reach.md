@@ -1,0 +1,2 @@
+Location: [[Humblewood]]
+[[Silas]]' hometown
